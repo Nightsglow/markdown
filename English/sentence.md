@@ -12,3 +12,11 @@
 
 
 
+# Follow our WeChat official account for more information
+
+微信公众号
+
+# Scan the QR code below
+
+扫描下方二维码
+
